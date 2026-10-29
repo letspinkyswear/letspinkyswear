@@ -6,7 +6,7 @@
 <p align="center">
 </p>
 <p align="center">
-<br> $\textit{{\color{#FFA4C0}  𓊆 💝 ❤︎ 2OO9 he him intp-t 6w5 demiboy #0 homelander夢男子 ❤︎ 💝 𓊇}$ 
+<br> $\textit{{\color{#FFC5D4}  𓊆 💝 ❤︎ 2OO9 he him intp-t 6w5 demiboy \#0 homelander夢男子 ❤︎ 💝 𓊇}}$ 
 </p>
 <p align="center">
 </p>
